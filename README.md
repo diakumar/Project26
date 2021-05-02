@@ -1,1 +1,1 @@
-# Project26
+Hershey’s “perfectly chocolate” Chocolate Cake with 5 ingredient chocolate frosting is our favorite homemade chocolate cake recipe! Extra moist, with a perfect rich chocolate flavor and tender, smooth crumb.
